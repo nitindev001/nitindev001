@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nitindev001
+- 👀 I’m interested in learning secrets of AI
+- 🌱 I’m currently learning Python for AI
+- 💞️ I’m looking to collaborate on ...
+- 📫 Reach me on Instagram:@nitin.singh_01
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am a singer
